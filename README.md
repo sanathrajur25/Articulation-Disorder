@@ -1,1 +1,2 @@
 # Articulation-Disorder
+Articulation Disorder is commonly found in children , they have problems making sounds and forming particular speech sounds properly and may not be able to produce a particular sound. The best age for speech therapy is the age your child is at when they start to fall behind, or when you notice they're not meeting milestones. Most children learn to make all speech sounds by the age of 4-5.
